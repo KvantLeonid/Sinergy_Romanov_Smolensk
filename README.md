@@ -1,0 +1,1 @@
+# Sinergy_Romanov_Smolensk
